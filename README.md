@@ -1,1 +1,0 @@
-# yoweswd.github.io
